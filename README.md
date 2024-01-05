@@ -1,6 +1,3 @@
-"# Yunong_Li.github.io" 
-"# Drizz1eDrag0n.github.io" 
-"# Drizz1eDrag0n.github.io" 
-"# Drizz1eDrag0n.github.io" 
-"# Drizz1eDrag0n.github.io" 
-"# Drizz1eDrag0n.github.io" 
+Yunong Li ❤ Pengyu Cui
+
+Forever since 2017
